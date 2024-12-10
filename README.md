@@ -9,4 +9,4 @@
 I'm a 18 year old self taught (programmer).
 
 
-- [My instagram 🌐](https://www.instagram.com/aqwa_.b/profilecard/?igsh=OWRlYXFmZWE2bzl0)
+- [My instagram 🌐](https://www.instagram.com/aqwa.b/profilecard/?igsh=MWlzbG8weTNybHhneg==)

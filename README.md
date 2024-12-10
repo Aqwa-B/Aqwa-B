@@ -4,9 +4,9 @@
   </a>
 </div>
 
-### Hi im Aqwa 👋
+### Hey im Aqwa 👋
 
-I'm a 17 year old mostly self taught programmer. I do fullstack sites, some roblox scripts and other misc projects
+I'm a 18 year old self taught (programmer).
 
 
 - [My instagram 🌐](https://www.instagram.com/aqwa_.b/profilecard/?igsh=OWRlYXFmZWE2bzl0)

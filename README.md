@@ -6,7 +6,7 @@
 
 ### Hey im Aqwa 👋
 
-I'm a 18 year old self taught (programmer).
+I'm a 19 year old self taught (programmer) I'm bad tho.
 
 
 - [My instagram 🌐](https://www.instagram.com/aqwa.b/profilecard/?igsh=MWlzbG8weTNybHhneg==)
